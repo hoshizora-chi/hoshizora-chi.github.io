@@ -322,4 +322,4 @@ They kept on hanging to the image of that bright rainbow while moving on in dark
 
 The song almost felt like it was sang by two people. Almost as if they were one, telling each other to keep believing and hanging on. Sharing hopes to each other as their fuel. Sometimes wandering through the night reminiscing about the time when they still share the same space.
 
-They kept on living, believing that, trying to keep smiling as the day passed. 
+They kept on living, believing that, trying to keep smiling as the days passed. 
