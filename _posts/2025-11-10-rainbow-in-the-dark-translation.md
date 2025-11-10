@@ -307,4 +307,19 @@ Pasti, aku yakin, pasti....
 Aku tetap hidup sekarang ini sambil memercayai itu.  
 Jadi, perlihatkan senyummu padaku.  
   
+## Thoughts
 
+I admire the use of consistent and cohesive metaphors throughout the entirety of the song. You can think of the first two verses as the moment 
+where the couple (or might be just two old friends) are saying goodbye to each other. Here, the lyricist used darkness and rain to describe  
+the sourness and the bitter taste of the moment. It was aching and hurtful like how the cold raindrops brushed their skins. It was uncertain and felt <i> somewhat hopeless </i> just like how the darkness covered up their path.
+
+But they believed.
+
+They kept on walking forward even though they are separated far apart by the horizon. 
+They clinged on to the hope that they would meet each other again after 
+the rain stopped and the day brightened, just when the rainbow was finally visible. See the cohesiveness? Rain, darkness, then rainbow, brightness. 
+They kept on hanging to the image of that bright rainbow while moving on in darkness, hence the song title Rainbow in the Dark.
+
+The song almost felt like it was sang by two people. Almost as if they were one, telling each other to keep believing and hanging on. Sharing hopes to each other as their fuel. Sometimes wandering through the night reminiscing about the time when they still share the same space.
+
+They kept on living, believing that, trying to keep smiling as the day passed. 
